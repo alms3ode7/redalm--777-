@@ -6,3 +6,8 @@
 افالون 2019 https://modsfire.com/rmZrs5AAdVA4j5U
 كيا كي فايف https://modsfire.com/p0uJmMb05gFQ8N1
 كي فور https://modsfire.com/d7s2xpazVK85vmb
+
+
+
+تورس 26
+https://drive.google.com/file/d/1nBkyzVusfMATICrtlwryBwVwJNZa9bCz/view?usp=drivesdk
